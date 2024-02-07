@@ -1,4 +1,5 @@
 my rentry is a wip rn but hi., im lilly/baphie
+i have a touch comfort so idm if you cuddle me
 
 my interests vary but here are a few
 
