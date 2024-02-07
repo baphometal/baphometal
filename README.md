@@ -6,6 +6,9 @@ my interests vary but here are a few
 marine life, anything paleo related, dbz, warframe, halo, cod bo1 and 2, both mw2s,, collecting , horror media , strange media, lps , pokemon, MIA, alien9, napping , irong lung, skyrim , scp, hotline mami 1 & 2 , tf2 , aargs,
 
 
+! please do NOT flirt with me, or try and roleplay with me. im taken by my husband lucien and i have no interest in doing those things with anyone other than him .
+
+
 
 
 
