@@ -7,7 +7,7 @@ my interests vary but here are a few
 marine life, anything paleo related, dbz, warframe, halo, cod bo1 and 2, both mw2s,,
 collecting , horror media ,
 strange media, lps 
-, pokemon, 
+, pokemon, katana zero,
 MIA, alien9, napping , irong lung, skyrim , scp, hotline mami 1 & 2 , tf2 , aargs,
 
 ![ezgif-5-c6839f31b5](https://github.com/BAPHl/BAPHl/assets/92185101/95671fb5-1599-4fd8-acd7-e26bfd799002)
