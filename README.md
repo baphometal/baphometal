@@ -4,9 +4,8 @@
 
 my general interests:
 
-CoD (bO2, mw2, ghosts) , halo, hotline miami ,katana zero , 
-SCP ,the isle, warframe, roblox ,marine life ,pinnipeds, biology
-![ezgif-5-c6839f31b5](https://github.com/BAPHl/BAPHl/assets/92185101/95671fb5-1599-4fd8-acd7-e26bfd799002)
+**CoD**, **Hotline Miami**, katana zero, **DBZ**, final fantasy, **Halo**, Red vs Blue, **Warframe**, cry of fear, The isle, **Monster Hunter**, **SCP**, postal, Pokemon, Horror/thriller genre, **Pinnipeds**, **Marine biology**, Dinosaurs, Tactical gear, Presentable Liberty, Bugs, Team fortress 2, **GMOD**, Contractors, Vrchat, **Fortnite**
+
 
 
 
