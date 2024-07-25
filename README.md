@@ -1,5 +1,5 @@
 
-![soap-mw2](https://github.com/BAPHl/BAPHl/assets/92185101/78a9c249-9a90-4145-96fd-2eb6be855932)
+![gfgf]([https://github.com/BAPHl/BAPHl/assets/92185101/78a9c249-9a90-4145-96fd-2eb6be855932](https://cdn.discordapp.com/attachments/819242533199937536/1265852347914125373/Screenshot_-_2024-07-24T220510.230.png?ex=66a3045e&is=66a1b2de&hm=a0a6ceb0717edd120076ee8312bb42796515a7f77b7564783220bd0fd686dd48&))
 
 
 my general interests:
