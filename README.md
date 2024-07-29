@@ -6,7 +6,7 @@
 
 my general interests:
 
-**dramatical murder, slow damage.** ,**CoD**, **Hotline Miami**, katana zero, **DBZ**, final fantasy, **Halo**, Red vs Blue, **Warframe**, cry of fear, The isle, **Monster Hunter**, **SCP**, postal, Pokemon, Horror/thriller genre, **Pinnipeds**, **Marine biology**, Dinosaurs, Tactical gear, Presentable Liberty, Bugs, Team fortress 2, **GMOD**, Contractors, Vrchat, **Fortnite**
+**dramatical murder, slow damage, SOMA** ,**CoD**, **Hotline Miami**, katana zero, **DBZ**, final fantasy, **Halo**, Red vs Blue, **Warframe**, cry of fear, The isle, **Monster Hunter**, **SCP**, postal, Pokemon, Horror/thriller genre, **Pinnipeds**, **Marine biology**, Dinosaurs, Tactical gear, Presentable Liberty, Bugs, Team fortress 2, **GMOD**, Contractors, Vrchat, **Fortnite**
 
 no dni just dont talk to me if ur a minor or a nitro chiral fan that says proshippers dni.. especially dmmd fans that say that.. r u dumb
 
