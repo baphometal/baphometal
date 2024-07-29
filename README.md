@@ -1,6 +1,7 @@
 
 
-![Screenshot_-_2024-07-24T220510 230](https://github.com/user-attachments/assets/ecedb8e1-78f2-4f01-97f2-762ee1ef2304)
+![IMB_IAZM02](https://github.com/user-attachments/assets/a530516b-b6ac-4dca-976f-ceeb5e9b8843)
+
 
 
 my general interests:
