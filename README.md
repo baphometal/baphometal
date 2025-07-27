@@ -1,6 +1,5 @@
 
 
-![IMB_IAZM02](https://github.com/user-attachments/assets/a530516b-b6ac-4dca-976f-ceeb5e9b8843)
 
 
 
