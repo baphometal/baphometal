@@ -1,4 +1,8 @@
-
+‎ ꒰ ⛧ Baph/Lilly/Vee
+‎ ꒰ ⛧ 21 , she her 
+‎ ꒰ ⛧ ISFj SEI sx/so972 
+‎ ꒰ ⛧ future marine biologist, av geek and 
+      drama hater
 
 
 
