@@ -1,6 +1,6 @@
 ‎ ꒰ ⛧ Baph/Lilly/Vee
 
-‎ ꒰ ⛧ 22 , she her 
+‎ ꒰ ⛧ 22 , she him
 
 ‎ ꒰ ⛧ ISFj SEI sx/so972 
 
