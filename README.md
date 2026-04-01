@@ -1,11 +1,10 @@
-‎ ꒰ ⛧ Baph/Lilly/Vee
+           ‎ ꒰ ⛧ Baph/Lilly/Vee
 
-‎ ꒰ ⛧ 22 , she him
+            ‎ ꒰ ⛧ 22 , she him
 
-‎ ꒰ ⛧ ISFj SEI sx/so972 
+            ‎ ꒰ ⛧ ISFj SEI sx/so972 
 
-‎ ꒰ ⛧ future marine biologist, av geek and 
-      drama hater
+            ‎ ꒰ ⛧ 5/6/20 lucien <3
 
 
 
