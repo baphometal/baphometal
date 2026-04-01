@@ -1,3 +1,7 @@
+
+
+![ec1ee2ea2f8344aea6042efb4ec83934](https://github.com/user-attachments/assets/dd31a583-da10-480b-8257-c08ede183129)
+
            ‎ ꒰ ⛧ Baph/Lilly/Vee
 
             ‎ ꒰ ⛧ 22 , she him
@@ -5,7 +9,6 @@
             ‎ ꒰ ⛧ ISFj SEI sx/so972 
 
             ‎ ꒰ ⛧ 5/6/20 lucien <3
-
 
 
 
