@@ -20,7 +20,8 @@ my general interests:
 ![2047FEB4-7A9F-4422-945B-30B153B5FB60](https://github.com/user-attachments/assets/830422ad-9034-4664-bc83-c635af392b00) 
 
 
-![sephiroth-plush](https://github.com/baphometal/baphometal/assets/92185101/a92ebf44-633b-4be3-9c20-44356d62364f)
+
+![Untitled315_20230604044403_1](https://github.com/user-attachments/assets/91c23c9c-7f95-41f7-90dd-0db93c88423b)
 
 
 
