@@ -2,15 +2,14 @@
 ![ec1ee2ea2f8344aea6042efb4ec83934_1](https://github.com/user-attachments/assets/315bc9e4-2656-4048-9f47-995a48a8b176)
 
 
-
-           ‎ ꒰ ![tumblr_81f1a00c072ee537fe0ea4466f675306_2eef4b2b_75](https://github.com/user-attachments/assets/fd79b6f6-3c64-47b1-8a1c-8ead38e583f5)
+꒰ ![tumblr_81f1a00c072ee537fe0ea4466f675306_2eef4b2b_75](https://github.com/user-attachments/assets/fd79b6f6-3c64-47b1-8a1c-8ead38e583f5)
  Baph/Lilly/Vee
 
-            ‎ ꒰  22 , she him
+꒰  22 , she him
 
-            ‎ ꒰  ISFj SEI sx/so972 
+꒰  ISFj SEI sx/so972 
 
-            ‎ ꒰  5/6/20 lucien <3
+ ꒰  5/6/20 lucien <3
 
 
 
