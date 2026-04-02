@@ -1,19 +1,10 @@
-
-
-![ec1ee2ea2f8344aea6042efb4ec83934_1](https://github.com/user-attachments/assets/315bc9e4-2656-4048-9f47-995a48a8b176)
-
-
-![tumblr_d1a081ca94cc93c5b9e8b5a6b74c3b41_05b4b86b_75](https://github.com/user-attachments/assets/70f0f6ac-5009-40d4-901e-e1d624c78b4f)
-</p>
-<p align="center">Baph/lilly</p>![tumblr_d1a081ca94cc93c5b9e8b5a6b74c3b41_05b4b86b_75](https://github.com/user-attachments/assets/fb88f9ae-c790-40cf-bff5-22bb77344416)
-
-
-<p align="center">22</p>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![ec1ee2ea2f8344aea6042efb4ec83934_1](https://github.com/user-attachments/assets/15c81230-0a92-4ca1-96ef-b879b9cf6e30)
 
 
 
-my general interests:
+<p align="center"> <img src=https://files.catbox.moe/7javow.gif>Baph/lilly<img src="https://files.catbox.moe/7javow.gif"</p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+![tumblr_9cac24d2c3d7f93c0b283a7261845dd6_d2a6a272_75](https://github.com/user-attachments/assets/95d38218-656f-4cfd-a4d0-fcc5c546ce80)my general interests:
 
 **dramatical murder, slow damage, SOMA** ,**CoD**, **Hotline Miami**, katana zero, **DBZ**, final fantasy, **Halo**, Red vs Blue, **Warframe**, cry of fear, The isle, **Monster Hunter**, **SCP**, postal, Pokemon, Horror/thriller genre, **Pinnipeds**, **Marine biology**, Dinosaurs, Tactical gear, Presentable Liberty, Bugs, Team fortress 2, **GMOD**, Contractors, Vrchat, **Fortnite**
 
