@@ -3,14 +3,14 @@
 ![ec1ee2ea2f8344aea6042efb4ec83934_1](https://github.com/user-attachments/assets/315bc9e4-2656-4048-9f47-995a48a8b176)
 
 
-꒰ ![tumblr_81f1a00c072ee537fe0ea4466f675306_2eef4b2b_75](https://github.com/user-attachments/assets/fd79b6f6-3c64-47b1-8a1c-8ead38e583f5)
- Baph/Lilly/Vee
+</p>
 
-꒰ ![tumblr_81f1a00c072ee537fe0ea4466f675306_2eef4b2b_75](https://github.com/user-attachments/assets/fd79b6f6-3c64-47b1-8a1c-8ead38e583f5) 22 , she him
+![tumblr_cdbe08ddaf738d80ad1f34dfe0f29984_c48e5484_75](https://github.com/user-attachments/assets/1a8301e9-1dbb-42f8-89e9-e9f56ab35f34)
+<p align="center">Baph/lilly</p>![tumblr_d1a081ca94cc93c5b9e8b5a6b74c3b41_05b4b86b_75](https://github.com/user-attachments/assets/fb88f9ae-c790-40cf-bff5-22bb77344416)
 
-꒰ ![tumblr_81f1a00c072ee537fe0ea4466f675306_2eef4b2b_75](https://github.com/user-attachments/assets/fd79b6f6-3c64-47b1-8a1c-8ead38e583f5) ISFj SEI sx/so972 
 
- ꒰ ![tumblr_81f1a00c072ee537fe0ea4466f675306_2eef4b2b_75](https://github.com/user-attachments/assets/fd79b6f6-3c64-47b1-8a1c-8ead38e583f5) 5/6/20 lucien <3
+<p align="center">22</p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
