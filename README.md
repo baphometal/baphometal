@@ -1,4 +1,5 @@
-![ec1ee2ea2f8344aea6042efb4ec83934_1](https://github.com/user-attachments/assets/15c81230-0a92-4ca1-96ef-b879b9cf6e30)
+<img width="1416" height="1687" alt="123080810_E0oWSYSqRAinY6j" src="https://github.com/user-attachments/assets/ec62e72b-3457-4364-a17f-bb2b23a80634" />
+
 
 
 
